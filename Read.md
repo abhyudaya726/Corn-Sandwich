@@ -1,1 +1,1 @@
-I will how to make a delicious corn sandwich
+I will tell how to make a delicious corn sandwich
